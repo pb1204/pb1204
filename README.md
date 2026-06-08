@@ -53,8 +53,8 @@ Graduation: May 2026
 ---
 
 ## 📫 Connect With Me
-**Email:** peliahbowers@gmail.com  
-**LinkedIn:** (add your link here when you're ready)
+**Email:** peliah93@gmail.com  
+**LinkedIn:** www.linkedin.com/in/peliah-bowers-14b888253
 
 ---
 
